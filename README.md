@@ -1,2 +1,0 @@
-# Bootslander
-JDZBVLXZDNV;ZJDV;BBXC/ .,
